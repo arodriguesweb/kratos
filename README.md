@@ -1,2 +1,1 @@
-# kratos
 Stay hard!
