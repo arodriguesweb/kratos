@@ -1,1 +1,1 @@
-Stay hard!
+STAY HARD!
